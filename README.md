@@ -42,7 +42,7 @@
 ## 📫 Contato
 - 📍 Ouro Branco, MG - Brasil  
 - 📧 Email: **ferrari.victor06@gmail.com**  
-- 💼 [LinkedIn](https://www.linkedin.com/)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/jo%C3%A3o--ferrari/)  
 - 🌐 [Portfólio](#)  
 
 ---
